@@ -4,7 +4,7 @@ była ciemna i bezksiężycowa. Książę modlił się i obiecał. Panu Bogu, ż
 odnajdzie swoich towarzyszy i drogę do domu, (co wtedy dla tych, którzy
 zabłądzili nie było łatwe) postawi świątynię jako wotum za odnalezienie się. Po
 straszliwej nocy, kiedy pierwsze promienie słońca zaczęły się już przebijać
-przez ciemności nocy, usłyszał książe najpierw dalekie, a potem coraz bliższe
+przez ciemności nocy, usłyszał książę najpierw dalekie, a potem coraz bliższe
 granie rogów myśliwskich. Po niedługim czasie był już ze swoimi towarzyszami. Po
 powrocie do domu opowiedział swojej żonie Eufemii o swojej przygodzie i
 ślubowaniu, które złożył. Ona też niezwłocznie doprowadziła do wyprawy w miejsce
